@@ -13,3 +13,12 @@ With great surprise the smell of the Chapelier's cat was coming from ....
 
 I failed the first quarter of a class in middle school, so I made a fake report card. I did this every quarter that year. I forgot that they mail home the end-of-year cards, and my mom got it before I could intercept with my fake. She was PISSED—at the school for their error. The teacher also retired that year and had already thrown out his records, so they had to take my mother’s “proof” (the fake ones I made throughout the year) and “correct” the “mistake.” I’ve never told her the truth.
 
+Dans cette direction-ci, répondit le Chat, en faisant un vague geste de sa patte droite, habite un Chapelier ; et dans cette direction-là (il fit un geste de sa patte gauche), habite un Lièvre de Mars. Tu peux aller rendre visite à l’un ou à l’autre : ils sont fous tous les deux.
+
+- Mais je ne veux pas aller parmi les fous. Fit remarquer Alice.
+
+- Impossible de faire autrement, dit le Chat. Nous sommes tous fous ici. Je suis fou. Tu es folle.
+
+- Comment savez-vous que je suis folle ? demanda Alice.
+
+- Tu dois l’être, répondit le Chat, autrement tu ne serais pas venue ici
